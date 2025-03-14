@@ -2,6 +2,9 @@
 - 👀 I’m interested in computers, Dr Who, crafts, sewing, knitting, baking, cooking, and more
 - 🌱 I’m currently learning Italian
 - 💞️ I’m looking to collaborate on ...
+
+I currently am teaching Math and Science in Danville Illinois
+
 - 📫 How to reach me email karla.andrew@gmail.com or kmandrew@illinois.edu
 
 <!---
